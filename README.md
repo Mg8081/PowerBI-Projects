@@ -26,6 +26,6 @@ Sample Insights are;
 FINAL CONCLUSION TO IMPROVE VRINDA STORE SALES:
  
  
- •Target women customers of age group(30-49yrs) living in Maharashtra, Karnataka and Uttar Pradesh by showing ads/offers/coupons available on Amazon, Flipkart and Myntra.
+ • Target women customers of age group(30-49yrs) living in Maharashtra, Karnataka and Uttar Pradesh by showing ads/offers/coupons available on Amazon, Flipkart and Myntra.
 
 
